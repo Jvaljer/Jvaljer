@@ -1,1 +1,1 @@
-Currently student at Paris-Saclay University in a Magistere of Computer Science. 
+Currently student at Paris-Saclay University & Telecom Paris in the international Master of Human-Computer-Interaction
