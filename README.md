@@ -1,1 +1,3 @@
-Currently student at Paris-Saclay University & Telecom Paris in the international Master of Human-Computer-Interaction
+Human-Computer Interaction & UX Design Student at Université Paris-Saclay x ENSTA IPP
+Freelance Developper & UX/UI Design
+French 21yo
